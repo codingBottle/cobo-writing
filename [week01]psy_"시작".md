@@ -6,7 +6,7 @@
 
 hanni님께서 곡 추천으로 글을 시작하셨던 것이 좋은 것 같아 나도 BGM으로 한 곡 추천 드리며 글 작성을 이어가려한다.
 
-[This is me](<[https://www.youtube.com/watch?v=wEJd2RyGm8Q](https://www.youtube.com/watch?v=wEJd2RyGm8Q)>)
+[This is me](https://www.youtube.com/watch?v=wEJd2RyGm8Q)
 
 나는 무언가를 시작하는 것에 있어 사실 크게 두려움을 느끼는 편은 아니었다. 그렇기에 잡다한 아르바이트 부터 시작하여 여행, 엑티비티 등 값진 많이 경험들을 할 수 있었던 것 같다.
 그러나 그 시작에 나 혼자가 아닌 다른 이와 접점 혹은 연관이 있다면 생각이 굉장히 많아진다.
