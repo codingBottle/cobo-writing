@@ -1,5 +1,7 @@
 # cobo-writing
 
+[글 보러 가기](https://github.com/codingBottle/cobo-writing/issues/7)
+
 > branch 명 : 자신의 영어 이름
 
 1. 각 주제 별로 한 편의 글을 완성하도록 한다.
