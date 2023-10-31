@@ -1,7 +1,7 @@
 ## 주저리
 살아남기라는 주제를 봤을 때 초등학교때 봤던 “~에서 살아남기” 시리즈가 생각나는 군요! 
 
-![살아남기](image-1.png)
+![살아남기](https://github.com/codingBottle/cobo-writing/assets/72500673/7c4c87c8-33ad-41b9-a6d1-d7f4d48a6d11)
 
 허허 … 🤣
 
