@@ -175,3 +175,4 @@
 나쁜경험도, 좋은경험도, 모두 내 지금성격을 만들었다.
 나쁘게 말한부분도 많지만 그런것들이 있었기 때문에 지금의 후엥이 나오게 되었다.
 
+![20408 preview](https://github.com/codingBottle/cobo-writing/assets/97311614/eced6f5a-0c10-4bcd-995f-0f3b8115c864)
